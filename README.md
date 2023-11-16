@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Cybersecurity online and at Collin College**
 
-- 📫 How to reach me **seanbusiness719@gmail.com**
+- 📫 How to reach me **sbeattie1@collin.edu**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
